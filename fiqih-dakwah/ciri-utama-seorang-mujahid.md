@@ -16,7 +16,7 @@ Seorang mujahid yang berjuang dan berjihad, atau seorang kader dakwah harus memi
 
    > "Sesungguhnya Allah telah membeli dari diri orang-orang mukmin dari diri dan harga mereka dengan memberikan surga untuk mereka." (At-Taubah: 111)
 
-5. Dia akan **terus menerus berjihad dan dakwah di jalan Allah**, menuju cita-cita walaupun belum waktunya belum tiba dia telah menemui ajalnya dalam jihad fii sabilillah. Lantas ia mencapai salah satu di antara dua kebaikan, yaitu *syahid* atau *menang* dalam memperjuangkan cita-cita dunianya.
+5. Dia akan **terus menerus berjihad dan dakwah di jalan Allah**, menuju cita-cita walaupun waktunya belum tiba dia telah menemui ajalnya dalam jihad fii sabilillah. Lantas ia mencapai salah satu di antara dua kebaikan, yaitu *syahid* atau *menang* dalam memperjuangkan cita-cita dunianya.
 
    Firman Allah:
 
@@ -40,4 +40,3 @@ Disadur dari:
   * Dilahirkan di Mesir tahun 1921
   * Mursyid Am Ikhwanul Muslimin yang kelima
 * Penerbit: Al I'thishom
-
